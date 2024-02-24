@@ -7,6 +7,9 @@
 - ⚡ Fun fact: Im EVERYWHERE:
 💀 Youtube: https://www.youtube.com/c/DeltacraftCrepe
 🍊 Reddit: https://www.reddit.com/user/MineProgresser99/
+🔴 Pinterest: https://www.pinterest.pt/Deltacraft_4K/
+🟢 Minecraft: Deltacraft_4K
+
 
 
 
